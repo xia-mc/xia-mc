@@ -8,7 +8,8 @@
 <br/> Github? Maybe.
 - 📫 How to reach me ...
 <br/> Send to 2052472631@qq.com.
+<br/> Of course. You can also send to 'xiayichun0512@gmail.com' without answers.
 
-<br/> Hey! You open this file!<br/> 
-Enjoy yourself!<br/> 
+<br/> Hey! Impossible! You have open this file!<br/> 
+Enjoy!<br/> 
 
